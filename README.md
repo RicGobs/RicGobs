@@ -4,7 +4,7 @@
 
 🚀 Passionate about the evolving world of computer systems and technology.
 
-💼 Currently focused on Telecommunications, Internet of Things and Cybersecurity.
+💼 Currently focused on Telecommunications, Networking and AI/ML.
 
 
 ## Get in Touch
