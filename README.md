@@ -9,6 +9,6 @@
 
 ## Get in Touch
 
-Let's connect, collaborate, and contribute to making the tech world better together! You can find me on [LinkedIn](https://www.linkedin.com/in/riccardogobbato/).
+Feel free to [reach out](https://www.linkedin.com/in/riccardogobbato/), whether it's about a potential collaboration, insightful discussions, or sharing thoughts on the latest in the tech landscape. 
 
-Feel free to reach out, whether it's about a potential collaboration, insightful discussions, or sharing thoughts on the latest in the tech landscape. Together, we can shape the future of technology! 🌐
+Together, we can shape the future of technology! 🌐
