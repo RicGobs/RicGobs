@@ -9,6 +9,4 @@
 
 ## Get in Touch
 
-Feel free to [reach out](https://www.linkedin.com/in/riccardogobbato/), whether it's about a potential collaboration, or sharing thoughts on the latest in the tech landscape. 
-
-Together, we can shape the future of technology! 🌐
+Feel free to [reach out](https://www.linkedin.com/in/riccardogobbato/), whether it's about a potential collaboration, or sharing thoughts on the latest in the tech landscape. 🌐
