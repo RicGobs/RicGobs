@@ -1,11 +1,7 @@
 # About Me
 
-🎓 Master's student in Engineering in Computer Science at Sapienza Università di Roma.
-
-🚀 Passionate about the evolving world of computer systems and technology.
-
-💼 Currently focused on Telecommunications, Networking and AI/ML.
-
+💼  Computer Engineer, currently focused on Networking and AI.
+🚀 Passionate about the evolving world of technology.
 
 ## Get in Touch
 
