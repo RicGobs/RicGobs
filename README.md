@@ -1,6 +1,7 @@
 # About Me
 
 💼  Computer Engineer, currently focused on Networking and AI.
+
 🚀 Passionate about the evolving world of technology.
 
 ## Get in Touch
